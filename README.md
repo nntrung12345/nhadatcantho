@@ -29,14 +29,12 @@ Theo đó, khu hành chính tập trung của TP.Cần Thơ rộng 60 ha sẽ tr
 						TUYẾN ĐƯỜNG SẮT HCM - CẦN THƠ
 	<h2><strong>Kết Luận</strong></h2>
 <p><em>Sao những thông tin chia sẽ trên thì thị trường <a href="http://namtrungland.com/dau-tu-dat-nen-can-tho-can-luu-y-dieu-gi/"><strong>bất động sản cần thơ</strong></a> là miếng mồi béo bỡ cho các nhà đầu tư. Cũng như cư dân sinh sống tại các tỉnh nói chung và Cần Thơ nói riêng sẽ lựa chọn được nơi "An Cư Lạc Nghiệp'' . Tại khu kinh kế lớn thứ 2 của miền nam Việt Nam.</em></p>
-	<p>Mọi thông tin về các dự án. Xin Quý khách hàng liên hệ hoặc đăng ký Form khách hàng cạnh bên. Để bộ phận kinh doanh chúng tôi liên hệ sớm nhất qua :</p>
+	<p>Mọi thông tin về các dự án. Xin Quý khách hàng liên hệ hoặc đăng ký Form khách hàng cạnh bên. Để bộ phận kinh doanh chúng tôi l
 <p>Holtine : 0944505454</p>
 	<p><strong>THÔNG TIN LIÊN HỆ</strong></p>
 <p><strong>Địa chỉ: </strong>Hùng Vương, Phường Thới Bình, Quận Ninh Kiều, TPCT</p>
 <p><strong>Điện thoại:</strong> <a href="tel:0944505454">0944 505454</a></p>
-<p><strong>Email: nntrung12345@gmail.com</strong></p>
-<p><img src="https://namtrungland.com/wp-content/uploads/2018/07/Website-đã-đăng-ký-bộ-công-thương-300x113-300x113.png" alt="" width="300" height="113" /></p>
-	<iframe src="https://www.google.com/maps/embed/v1/place?q=H%C3%B9ng+V%C6%B0%C6%A1ng%2C+Ph%C6%B0%E1%BB%9Dng+Th%E1%BB%9Bi+B%C3%ACnh%2C+Qu%E1%BA%ADn+Ninh+Ki%E1%BB%81u%2C+TPCT&key=AIzaSyD09zQ9PNDNNy9TadMuzRV_UsPUoWKntt8"></iframe>
+<p><strong>Email: nntrung12345@gmail.com</strong></rcs://namtrungland.com/wp-content/uploads/2018/07/Website-đã-đăng-ký-bộ-công-thương-300x113-300x113.png
 	<p><strong>GIỚI THIỆU</strong></p>
 <p><a href="https://namtrungland.com/"><strong>Namtrungland.com</strong></a> là trang thông tin tổng hợp các dự án cao cấp tại TPHCM &amp; được nhiều khách hàng lựa chọn, nhằm mang đến người xem cái nhìn tổng thể về thị trường và lựa chọn bất động sản tốt nhất</p>
 <p><img src="https://namtrungland.com/wp-content/uploads/2018/07/LOGO-NAMTRUNG-V150318-copy-300x197.png" alt="" width="150" height="99" /></p>
